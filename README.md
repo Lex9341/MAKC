@@ -32,9 +32,9 @@
 ---
 
 ## 📫 Contacts
-- ✉️ Email: your.email@example.com  
-- 💬 Telegram: [@YourTelegram](#)  
-- 🔗 LinkedIn: [YourLinkedIn](#)  
+- ✉️ Email: merdand22f@gmail.com  
+- 💬 Telegram: [@YourTelegram](https://t.me/Mo_cryy)  
+- 🔗 LinkedIn: [YourLinkedIn]()  
 
 ---
 
